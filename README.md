@@ -1,16 +1,19 @@
-## Hi there 👋
+do not associate me with other twotime fans bruh owo oke sign ata~~
+ <p align="center"
+<a href="https://hits.sh/github.com/nezoshokii/"><img alt="Hits" src="https://hits.sh/github.com/nezoshokii.svg?label=%F0%9F%8C%B9%20fans%20(views)&color=d22e49&labelColor=c28691"/></a>
 
-<!--
-**poisonedRitual/poisonedritual** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center"
+  
+##### [rentry](https://rentry.co/iamstormz) 🗡 [ata!](https://empire.atabook.org/) ![](https://files.catbox.moe/2y7mqf.png)   [prns cc](https://pronouns.cc/@planet)  ❔  [strwpg](https://iamstormz.straw.page/) 
 
-Here are some ideas to get you started:
+<p align="center"
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img
+        src="https://files.catbox.moe/x6q99i.png" 
+        width=50%
+        title="My Image"
+        alt="My Image" >
+
+<p align="center"
+
+ac = [starsplatfest](https://x.com/starsplatfest?s=21) 💫
