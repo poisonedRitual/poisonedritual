@@ -1,6 +1,6 @@
 do not associate me with other twotime fans bruh owo oke sign ata~~
  <p align="center"
-<a href="https://hits.sh/github.com/nezoshokii/"><img alt="Hits" src="https://hits.sh/github.com/nezoshokii.svg?label=%F0%9F%8C%B9%20fans%20(views)&color=d22e49&labelColor=c28691"/></a>
+<a href="https://hits.sh/github.com/poisonedritual/"><img alt="Hits" src="https://hits.sh/github.com/poisonedritual.svg?label=%F0%9F%AA%BD%20sacrifices&color=63427a&labelColor=161628"/></a>
 
 <p align="center"
   
