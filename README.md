@@ -4,8 +4,8 @@ do not associate me with other twotime fans bruh owo oke sign ata~~
   <img
         src="https://files.catbox.moe/dcoldk.png" 
         width=60%
-        title="My Image"
-        alt="My Image" >
+        title="i forgot"
+        alt="i forgot" >
         
  <p align="center"
 <a href="https://hits.sh/github.com/poisonedritual/"><img alt="Hits" src="https://hits.sh/github.com/poisonedritual.svg?label=%F0%9F%AA%BD%20sacrifices&color=63427a&labelColor=161628"/></a>
@@ -19,8 +19,8 @@ do not associate me with other twotime fans bruh owo oke sign ata~~
 <img
         src="https://files.catbox.moe/x6q99i.png" 
         width=50%
-        title="My Image"
-        alt="My Image" >
+        title="starsplatfest"
+        alt="starsplatfest" >
 
 <p align="center"
 
@@ -31,5 +31,5 @@ ac = [starsplatfest](https://x.com/starsplatfest?s=21) 💫
   <img
         src="https://files.catbox.moe/kiagxl.png" 
         width=60%
-        title="My Image"
-        alt="My Image" >
+        title="follow my tt- plqnetz"
+        alt="follow my tt- plqnetz" >
