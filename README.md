@@ -4,7 +4,7 @@ do not associate me with other twotime fans bruh owo oke sign ata~~
 
 <p align="center"
   
-##### [rentry](https://rentry.co/iamstormz) 🗡 [ata!](https://empire.atabook.org/) ![](https://files.catbox.moe/2y7mqf.png)   [prns cc](https://pronouns.cc/@planet)  ❔  [strwpg](https://kazsona.straw.page/) 
+##### [rentry](https://rentry.co/iamstormz) 🗡 [ata!](https://empire.atabook.org/) ![](https://files.catbox.moe/2y7mqf.png)   [prns cc](https://pronouns.cc/@planet)  🪽  [strwpg](https://kazsona.straw.page/) 
 
 <p align="center"
 
