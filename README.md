@@ -1,4 +1,4 @@
-do not associate me with other twotime fans bruh owo oke sign ata~~
+do not associate me with other twotime fans bruh owo oke sign ata or send me a msg on strawpage~~~
 <p align="center"
  
   <img
