@@ -17,8 +17,8 @@ do not associate me with other twotime fans bruh owo oke sign ata or send me a m
 <p align="center"
 
 <img
-        src="https://files.catbox.moe/x6q99i.png" 
-        width=50%
+        src="https://files.catbox.moe/m6p1fi.png"
+        width=70%
         title="starsplatfest"
         alt="starsplatfest" >
 
