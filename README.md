@@ -1,4 +1,4 @@
-do not associate me with other twotime fans bruh owo oke sign ata or send me a msg on strawpage~~~, this is my roblox gh
+pt cutest most unproblematic twotime~~ sign ata btw pls
 <p align="center"
  
   <img
