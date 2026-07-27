@@ -11,6 +11,9 @@ i self proclaim myself as ponytowns twotime Hi~~ please sign my ata or send me g
 <a href="https://hits.sh/github.com/poisonedritual/"><img alt="Hits" src="https://hits.sh/github.com/poisonedritual.svg?label=%F0%9F%AA%BD%20sacrifices&color=63427a&labelColor=161628"/></a>
 
 <p align="center"
+ 
+[@germanstare](https://github.com/germanstare) my azure ^u^
+<p align="center"
   
 ##### [rentry](https://rentry.co/iamstormz) 🗡 [ata!](https://empire.atabook.org/) ![](https://files.catbox.moe/2y7mqf.png)   [prns cc](https://pronouns.cc/@planet)  🪽  [strwpg](https://apologetic.straw.page/) 
 
