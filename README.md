@@ -36,3 +36,14 @@ ac = [starsplatfest](https://x.com/starsplatfest?s=21) 💫
         width=60%
         title="follow my tt- plqnetz"
         alt="follow my tt- plqnetz" >
+
+<p align="center"
+ 
+  <img
+        src="https://files.catbox.moe/khasps.jpeg" 
+        width=60%
+        title="i forgot"
+        alt="i forgot" >
+<p align="center"
+
+I JUST HIT A FUCKIGN CLIP
