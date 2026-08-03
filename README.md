@@ -44,3 +44,14 @@ ac = [starsplatfest](https://x.com/starsplatfest?s=21) 💫
 <p align="center"
 
 I JUST HIT A FUCKIGN CLIP
+<p align="center"
+ 
+  <img
+        src="https://files.catbox.moe/c1mhbb.png" 
+        width=80%
+        title="missingxat"
+        alt="findthiscat" >
+<p align="center"
+
+missing cat
+
