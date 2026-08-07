@@ -1,4 +1,4 @@
-i self proclaim myself as ponytowns twotime Hi~~ please sign my ata or send me gimmicks on sp !!!!! 
+thank you so much for the ponytowns twotime title! i truly appreciate it! ‎@pt-walk-of-fame @pt-hall-of-media @pt-medals @ponytown-nominations @folktown 
 <p align="center"
  
   <img
