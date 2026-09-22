@@ -1,11 +1,3 @@
-nice job at advocating for anti-harassment all to just go on and harass me weirdo~
-  <img
-        src="https://files.catbox.moe/c1rqop.jpeg" 
-        width=40%
-        title="i forgot"
-        alt="i forgot" >
-        keep harassing me n my friends ur weird and dont deserve sympathy [@ace0fheart5](https://github.com/ace0fheart5)
-
 thank you so much for the ponytowns twotime title! i truly appreciate it! ‎[@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-medals](https://github.com/pt-medals) [@ponytown-nominations](https://github.com/ponytown-nominations) [@folktown](https://github.com/folktown) [@ponytowncosplayers](https://github.com/ponytowncosplayers) [@kaotown](https://github.com/kaotown) [@ponytown-rewards](https://github.com/Ponytowns-rewards) [@choco-town](https://github.com/choco-town)
 
 im also mentioned on!
