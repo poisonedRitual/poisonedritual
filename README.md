@@ -50,7 +50,7 @@ I JUST HIT A FUCKIGN CLIP
 <p align="center"
  
   <img
-        src="https://files.catbox.moe/tg6ez7.jpeg" 
+        src="https://file.garden/aj2M0JM-PAqVfuCj/IMG_1912.jpeg" 
         width=30%
         title="CUTE"
         alt="CUTE" >
