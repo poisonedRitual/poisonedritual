@@ -50,11 +50,11 @@ I JUST HIT A FUCKIGN CLIP
 <p align="center"
  
   <img
-        src="https://files.catbox.moe/c1mhbb.png" 
-        width=80%
-        title="missingxat"
-        alt="findthiscat" >
+        src="https://files.catbox.moe/tg6ez7.jpeg" 
+        width=30%
+        title="CUTE"
+        alt="CUTE" >
 <p align="center"
 
-missing cat
+I LOVE THIS STRAWPAGE ANON SO MUCH I GENJINELY CANT I NEED IT ON MY GIRHJB IM SO PATERNAL
 
