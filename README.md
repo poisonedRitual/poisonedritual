@@ -51,7 +51,7 @@ I JUST HIT A FUCKIGN CLIP
  
   <img
         src="https://file.garden/aj2M0JM-PAqVfuCj/IMG_1912.jpeg" 
-        width=30%
+        width=80%
         title="CUTE"
         alt="CUTE" >
 <p align="center"
